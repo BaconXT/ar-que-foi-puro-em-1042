@@ -1,0 +1,2 @@
+# ar-que-foi-puro-em-1042
+AAAAAAAAAAAAAAAAAAAAAAAAAA
